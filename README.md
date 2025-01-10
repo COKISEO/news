@@ -5,3 +5,5 @@
 - https://cokiseo.github.io/news/maxwin-mahjong-ways-3-strategi-black-scatter-wajib-kamu-coba.html
 - https://cokiseo.github.io/news/maksimalkan-kemenangan-anda-strategi-black-scatter-mahjong-ways-3.html
 - https://cokiseo.github.io/news/cara-mudah-mendapatkan-black-scatter-di-mahjong-ways-3-tips-trick.html
+- https://cokiseo.github.io/news/jackpot-melimpah-di-lucky-neko-pgsoft-bukti-kemenangan-pemain.html
+- https://cokiseo.github.io/news/lucky-neko-pgsoft-review-slot-online-rtp-dan-strategi-menang.html
