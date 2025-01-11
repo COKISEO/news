@@ -7,3 +7,5 @@
 - https://cokiseo.github.io/news/cara-mudah-mendapatkan-black-scatter-di-mahjong-ways-3-tips-trick.html
 - https://cokiseo.github.io/news/jackpot-melimpah-di-lucky-neko-pgsoft-bukti-kemenangan-pemain.html
 - https://cokiseo.github.io/news/lucky-neko-pgsoft-review-slot-online-rtp-dan-strategi-menang.html
+- https://cokiseo.github.io/news/analisa-pola-starlight-princess-x1000-ungkap-rahasia-kemenangan.html
+- https://cokiseo.github.io/news/rahasia-menang-starlight-princess-x1000-strategi-tips-jitu.html
