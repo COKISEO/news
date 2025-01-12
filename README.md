@@ -9,3 +9,5 @@
 - https://cokiseo.github.io/news/lucky-neko-pgsoft-review-slot-online-rtp-dan-strategi-menang.html
 - https://cokiseo.github.io/news/analisa-pola-starlight-princess-x1000-ungkap-rahasia-kemenangan.html
 - https://cokiseo.github.io/news/rahasia-menang-starlight-princess-x1000-strategi-tips-jitu.html
+- https://cokiseo.github.io/news/Kisah-cinta-dibalik-kemenangan-mahjong-wins-3.html
+- https://cokiseo.github.io/news/Benarkah-mahjong-wins-3-penuh-romantisme-temukan-jawabannya-di-sini.html
